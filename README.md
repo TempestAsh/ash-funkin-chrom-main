@@ -6,4 +6,4 @@ GenoX Voicebanks: https://github.com/GenoX-Fome/funkin-utau
 
 CerberaGirl chrom : https://gamebanana.com/members/1816058
 
-My BETADCIU : 
+My BETADCIU : https://gamejolt.com/games/ashbetadciu/698555
